@@ -1,0 +1,2 @@
+# gamemode
+not drama dek
